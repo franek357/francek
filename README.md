@@ -1,2 +1,0 @@
-# francek
-fajowo
